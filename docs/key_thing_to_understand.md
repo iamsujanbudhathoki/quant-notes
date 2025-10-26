@@ -1,0 +1,1 @@
+The financial industry has always witnessed constant transformation: new players joining and disrupting the competitive landscape, new technologies emerging and revolutionizing the way financial markets function, new data sources expanding the space of opportunities, and new standards and regulations getting released, promoted, and enforced.
